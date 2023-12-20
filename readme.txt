@@ -864,12 +864,7 @@ Wilson, Andy (5 July 2014). "India's Virat Kohli has swagger and substance to tr
 Dinakar, S. (28 March 2016). "Kohli's technique both unique and complete". The Hindu.
 Gardner, Ben (31 July 2018). "Analysis: The evolving genius of Virat Kohli (and how to stop him)". Wisden.
 Krishnaswamy, Karthik (29 December 2021). "The yin and yang of Kohli's cover drive". ESPN cricinfo. Retrieved 15 February 2022.
-"Not getting into swing of things, Virat on his knees". The Tribune. Chandigarh. 11 August 2014. Archived from the original on 4 March 2016. Retrieved 18 October 2015.
-Monga, Sidharth (29 July 2014). "Kohli's weakness grows wider". ESPNcricinfo. Ageas Oval. Retrieved 25 October 2021.
-Prabhu, Anuj Nitin (1 September 2021). "Virat Kohli will need to work on his weakness outside off-stump"- VVS Laxman". sportskeeda.
-"Virat Kohli Has Got A Very Obvious Weakness, Says Sanjay Manjrekar". Yahoo. 26 August 2021. Retrieved 4 March 2022.
-Dinakar, S. (March 2020). "Richard Hadlee: Southee is Kohli's weakness". Sportstar. Retrieved 25 October 2021.
-Ravindran, Siddharth (24 July 2013). "Another Kohli ton in a chase, another India win". ESPNcricinfo. Archived from the original on 4 June 2015. Retrieved 8 August 2014.
+"Not getting into swing of things, Virat on his knees". The Tribune. Chandigarh. 11 Aug 2014.
 "Statistics / Statsguru / V Kohli / One-Day Internationals". ESPN cricinfo. Archived from the original on 18 October 2022. Retrieved 24 October 2022.
 "ICC World Cup 2023: Virat Kohli now just one ODI hundred behind Sachin Tendulkar's 49". The Times of India. 20 October 2023. ISSN 0971-8257. Retrieved 24 October 2023.
 "Statistics / Statsguru / One-Day Internationals / Batting records". ESPN cricinfo. Archived from the original on 17 February 2015. Retrieved 28 June 2015.
